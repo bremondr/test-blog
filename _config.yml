@@ -1,6 +1,6 @@
 title: My Minimal Jekyll Blog
 description: A blog powered by Jekyll and GitHub Pages
-baseurl: "/test-blog"
+baseurl: "/test-blog/"
 url: "https://bremondr.github.io"
 theme: minima
 plugins:
