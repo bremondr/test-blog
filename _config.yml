@@ -1,0 +1,7 @@
+title: My Minimal Jekyll Blog
+description: A blog powered by Jekyll and GitHub Pages
+baseurl: ""
+url: "https://bremondr.github.io"
+theme: jekyll-theme-minima
+plugins:
+  - jekyll-feed
