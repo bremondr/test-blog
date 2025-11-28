@@ -1,0 +1,482 @@
+# 2018 Švédsko s člunem
+
+Země: 🇩🇪 Německo, 🇸🇪 Švédsko
+Kdy: 17/08/2018 → 26/08/2018
+
+![Untitled](Untitled.jpeg)
+
+---
+
+# 1. Koupili jsme člun
+
+Ačkoli jsme si užili čtyři úžasné týdny dovolené ve francouzských a španělských Pyrenejích, stále mi ještě týden dovolené zbývá. Přemýšlíme, jak ho využijeme. Vlado by rád po delší době zase na rodné Slovensko. Souhlasím a začínám hledat kam. K mému velkému překvapení a taky zděšení, se co chvíli objevují informace o přemnožených medvědech na Slovensku. Při hlubším průzkumu zjišťuji, jak v posledních několika letech jejich počet celkem utěšeně roste. Nyní jich bratři Slováci mají něco přes tisícovku. Babička Věrka slyšela že 1600. Tím ale letos Slováci přijdou o dva české turisty. Je rozhodnuto. Já tedy rozhodně na Slovensko nejedu. Nenechám se sežrat.
+
+Mojí volbou je nakonec jižní Švédsko. Když vyrazíme v pátek brzo ráno, v sobotu jsme ve Švédsku. Vladovi se to zdá moc daleko a krajina placatá. Má nápad. Zajímavý nápad. Prý si všiml na řece Ardeche ve Francii, jak jsem záviděla kanoistům splouvání kaňonovité řeky. Koupíme si tedy loď a vyrazíme na švédská jezera.
+
+![](IMG_20180815_162330.jpg)
+
+Vlado už hledá na internetu. Je konec sezony, tak jsou lodě v akci. Za dva dny nám u dveří zvoní rozvážková služba a člun od Mountfieldu za 2400 Kč je tu.
+
+---
+
+# 2. Výhodný trajekt
+
+17. srpna, pátek
+
+Stojím před poliklinikou úplně nalehko a čekám na příjezd Vlada s plně naloženou Alhambrou. Je pátek, konec týdne, ale teprve 13:00 a nám právě začíná další dobrodružná dovolená. Pacienti se stále ještě trousí do a z polikliniky, míjí mě přeplněné páteční trolejbusy, ale já už v myšlenkách uháním po německých dálnicích směrem na sever. Do 23:00 musíme dorazit do Sassnitz na noční trajekt do Trelleborgu.
+
+![](IMG_20180817_205803.jpg)
+
+Během pár minut přede mnou zastavuje šedá věrná kamarádka Alhambra s Vladem za volantem a dobrodružství právě začíná. Počasí je vpravdě prázdninové, modré nebe, slunečno, 32°C vzduch, silnice 47°C.
+
+Uháníme po německých dálnicích, letos již podruhé a zatím stále zdarma, bez jakýchkoli stavebních omezení, objížděk či dopravních nehod.
+
+Po 19 hodině je dálnice už téměř prázdná. V 19:30 přejíždíme po 2830 metrů dlouhém mostě na Rujánu, ostrov v Baltském moři, odkud ze Sassnitz odplouvají trajekty do Švédska. Je pod mrakem, tu a tam probleskuje sluníčko a slabě poprchává. Silnice jsou mokré po dešti, který jsme už ale nezastihli. V Čechách už nepršelo několik měsíců. Míjíme pole se sklizeným obilím. Kukuřice na sklizeň teprve čeká.
+
+Ve 20:20 vylézá sluníčko. Je po dešti, opět bez nás. Po 573 km a sedmi hodinách jízdy jsme v přístavu Sassnitz. Je 20:40 a tak do odjezdu trajektu v 23:00 máme ještě spoustu času. Jdu tedy nejprve zakoupit lodní lístky. Přesvědčila jsem totiž doma Vlada, ať je nekupuje přes internet, že už je konec turistické sezóny a na trajektu bude určitě místo. Lístky samozřejmě mají. Chci jednou Sassnitz - Trelleborg pro dva dospělé a jedno auto. Cena 139 EUR. Paní v okénku se mě ptá, kdy se vracíme. Zatím nevíme jestli příští sobotu či až v neděli ráno. Ptám se paní, proč se ptá. Nabídla by mi prý zpáteční levnější lístek pro obě cesty za pouhých 111 euro. Zírám na ni překvapeně. Vůbec mi to nemusela říkat, ušetříme tak díky ní minimálně 167 euro. Radíme se s Vladem, na kdy zpáteční lístek koupit. Je rozhodnuto. Poplujeme až v neděli ráno v 7:45. Paní ode mě dostala za special price velkou broskev s poděkováním a už míříme na seřadiště do přístaviště.
+
+# 3. Drakamöllan naturreservat a první úraz
+
+18. srpna, sobota
+
+Trajekt odplul ze Sassnitz a připlul do Trelleborgu bez zpoždění a tak nás vyplivnul ve Švédsku v 3:20 ráno. Trochu jsme si na lodi sice zdřímli, ale přesto si rychle hledáme nějaké opuštěné místo na dospání. Máme připraveno z domova podle Google maps několik míst hned za Trelleborgem, abychom za naprosté tmy nemuseli nic hledat.
+
+![](IMG_20180818_072517.jpg)
+
+Hned druhé místo je fajn. Za řadou rodinných domků na samém břehu moře mezi koňskými ohradami je malý plácek pro naši Alhambru. Hygienu jsme zvládli už na trajektu a tak ihned zalézáme do auta a usínáme za šumění moře asi tři metry od nás.
+
+Ráno mě budí zářící sluníčko a nešťastný Vlado. Překvapeně na něj z auta hledím ven. Vrací se od moře a smutně mi sděluje, že v moři se absolutně nedá koupat, jak je strašlivě znečištěné.
+
+![](_DSC0992.jpg)
+
+Jdu se s ním podívat na tu spoušť. A opravdu! Jak nám pak jeden místní obyvatel vysvětlil, před pár týdny přinesla silná bouře od moře tuny mořských řas a chaluh a vyvrhla je na břeh, kde teď i v metrových vrstvách hnijí. Bílé pláže jsou tak zavalené černou hnijící hmotou, přes kterou se ani nedá prodrat k vodě, ve které se stejná černá hmota ve vlnkách převaluje. No tady bych do moře nevlezla ani za nic. Brrr. Chudák Vlado. Já to přežiju. Doufám, že to nebude po celém pobřeží jižního Švédska. Jdeme se tedy projít po nejbližším okolí. Znečištění je všude úplně stejné. Vzdálenější okolí s domečky je ale moc pěkné.
+
+![_DSC0996.jpg](_DSC0996.jpg)
+
+V 8:00 už odjíždíme ze Snorthögsv ulice, na které nás ještě překvapily k moři otočené obranné bunkry ze druhé světové války. Jako české řopíky. Však je tu Německo jen přes moře….
+
+Později jsme po Švédsku potkali ještě spoustu takových bunkrů, střílen a řopíků. Ale jak nám opět řekli místní, nikdy nebyly použity. Švédsko s Německem nebojovalo, alespoň tedy ne tady. 
+
+Hledáme si rovnou i místo na přenocování na zpáteční cestu. Procházíme se po pobřeží mezi domky s velice zajímavou architekturou. Opět míjíme pobřežní linii bunkrů, která pokračuje dále na východ až ke Stockholmu.
+
+Černých chaluh na bílém písku ubývá. Zastavujeme v malé osadě s koňmi a vysokým majákem funkčním v letech 1886 – 1975. Dnes je kolem něj ubytovací zařízení a z majáku vyhlídková věž.
+
+![](_DSC1002.jpg)
+
+Další zastávku děláme na Smyge. Je zde muzeum, galerie (sklo, akvarel,...) a zařízení z 18. století na výrobu vápna z vápence. Je to nejjižnější místo Švédska.
+
+Kousek odtud ve Smygehamn je velké parkoviště s obytnými auty, zjevně tu stojícími už několik dní. Parkování je free, je tu i WC, stolky a lavice. Moře je ale ještě stále znečištěné a ke koupání nevhodné.
+
+Jedeme po pobřeží stále na východ. Objevujeme řadu míst, kde by se dalo volně přenocovat.
+
+Kolem 11. hodiny před Svarte téměř zmizely černé chaluhy z písečných pláží a tak i když od moře dost fouká, jde se Vlado vykoupat. Na stolku s lavicemi na dunách nad mořem pak vaříme oběd a popíjíme český Birell.
+
+![](IMG_20180818_113203.jpg)
+
+Kolem 12:00 u Benestadu se nám oběma začíná chtít děsně spát. Já už usnula několikrát i za jízdy, ale teď už padá únava i na Vlada. Urychleně hledáme vhodné místo na spaní.
+
+A to bude, a to bude... "Vlado, odboč ihned doleva.“ Odbočka k přírodní rezervaci Drakamöllan naturreservat bude to pravé. Nejprve se trochu prospíme a pak vyrazíme na průzkum rezervace. Po hodině a půl spaní nás naštěstí budí telefonát tety Jarky z Čech. Jinak bychom možná spali až do večera.
+
+![](IMG_20180818_142940.jpg)
+
+Vyrážíme tedy na okruh po rezervaci. Předmětem ochrany je stepní krajina se stepními písky a rozsáhlá vřesoviště. Na oplocených pastvinách se pasou malí skandinávští koníci či ovce, občas i krávy. Procházíme po písčitých stezkách přes vřesoviště, po žebřících přelézáme z ohrady do ohrady, míjíme kamenné zídky, šplháme po písečných dunách, ztrácíme se mezi pastvinami a ohradami, brodíme potok, který není ani v mapě, ale na druhém břehu narážíme na vysoký drátěný plot v hustém křoví. Brodíme tedy zpět. Cesta k autu je dost komplikovaná.
+
+![](_DSC1018.jpg)
+
+![_DSC1023.jpg](_DSC1023.jpg)
+
+![](_DSC1030-Edit.jpg)
+
+V 17:15 odjíždíme z rezervace Kumlans Drakamöllan, abychom už za 15 minut stavěli v přírodní rezervaci Verkeån Agusa-Hallamölla. Ještě na parkovišti nás míjí tři jezdci na koních. Cestou ke starému mlýnu s vnitřní expozicí pozorujeme muslimskou rodinnou párty na okolní loučce. Kdoví, zdali to nejsou nějací uprchlíci. Expozice ve mlýně je už zavřená a tak se jdeme podívat alespoň na náhon a říčku nad mlýnem.
+
+![](_DSC1033.jpg)
+
+Jedeme dál, kolem jahodových polí, sklizených obilných lánů, žloutnoucích bramborových polí, polí s dýněmi, ale taky polí s technickým konopím. Míjíme spoustu ohrad s koníky i dopravní značky pozor losi!
+
+![](_DSC1038.jpg)
+
+Po 19té hodině začínáme hledat místo na noc. Podle mapy by to mohlo být fajn na loukách u zámečku Karsholmsslott. Jo, místo jsme našli, ale ... Zastavili jsme a chvíli zůstali sedět v autě. Ani jsme neotevřeli dveře a už bylo přední sklo plné (naštěstí zatím jen zvenčí!) krvežíznivých potvor - komárů. Ještě jsem ani nestihla zavolat "odjezd!" a Vlado už startoval. Komáří invaze nás vyděsila. Hledáme dál.
+
+Vydáváme se po cyklotrase kolem jezera Råbelövssjon a tady na hranici rezervace Balsberget nacházíme malý plácek na přenocování u koňské ohrady.
+
+Zatímco vařím večeři, jde Vlado prozkoumat terén, zdali bychom na tomto jezeře mohli poprvé vyzkoušet náš nový člun. Hned ráno před odjezdem.
+
+Vlado se dlouho nevrací, až začínám být nervózní. Pak se objevuje na cestě a blíží se, ale drží si ruku. Jak lezl přes rákosí do jezera, aby se dnes naposledy vykoupal a umyl, uklouzl přes podvodou ukrytý padlý kmen. Jak se chtěl něčeho zachytit, aby neupadl, chňapl po ostrém rákosí, které mu prořízlo pravý prostředníček až na kost. Vlado si nejprve ani ničeho nevšiml. Až když vyšel z vody, uviděl kapající krev. Když se pak blíže podíval na čistě prořízlou ránu, málem to s ním seklo. Naštěstí ale neomdlel a ještě dokonce našel super místo pro vstup do jezera pro naši kánoi bez vodních trav a leknínů i bez bažin s rákosím. Po ošetření ruky, večeři a mojí sprše z ostřikovače, usínáme v tichu jezera a téměř bez komárů za záclonkami.
+
+# 4. První plavba
+
+19. srpna, neděle
+
+Vstáváme už v 7:00. Je podmračeno a dokonce nás skrápí krátký deštík. To nás ale nemůže odradit od naší první plavby, od prvního vyzkoušení naší nafukovací kánoe Explorer.
+
+![](_DSC1043.jpg)
+
+Není zrovna moc teplo a tak noříme padla do vody opatrně, abychom se moc nezmáčeli. Proti větru mám na sobě novou záchrannou vestu a rychleschnoucí šusťákové kraťasy. Ty sehnat, mi dalo nejvíce práce. Nikde nic rychleschnoucího neměli, až v obchodě "vše za 59 ". Měli jen jedny jediné. Akorát na mě. Ale nesmím přibrat!
+
+![](IMG_20180819_085604.jpg)
+
+Tiše plujeme podél břehu jezera Råbelövssjön. Proplétáme se mezi lekníny, pozorujeme kroužící dravce nad našimi hlavami a odpočívajícího kormorána. Nikde nikdo, všude ticho, jen drobné vlnky se lámou o naši příď. Škoda jen, že nesvítí sluníčko.
+
+![](IMG_20180819_091020.jpg)
+
+Kolem poledne vaříme na místě nocování ještě oběd, zatímco sušíme loď. Teplota zatím vyšplhala na 21 a půl stupně Celsia. Při odjezdu se ještě zastavujeme u daňčí obory a ohrad se severskými koníky.
+
+![IMG_20180819_114250.jpg](IMG_20180819_114250.jpg)
+
+Naším dnešním odpoledním cílem je přírodní rezervace Eriksbergs strander naturreservat, nacházející se kolem mořského pobřeží. Parkujeme na posledním možném místě před privat way a vydáváme se po značené turistické značce mezi skalnatým pobřežím a vysokým pletivovým plotem. Kolem je borový, jalovcový a březový les. Přemýšlíme, co je asi za plotem a jestli nějaké to zvířátko uvidíme.
+
+![IMG_20180819_133521.jpg](IMG_20180819_133521.jpg)
+
+Časem se za plotem objevují zvířata. Jako první se mihla prasnice se selátkem. Za chvíli můžeme pozorovat pasoucí se srnky či rozhlížející se jeleny. Na další loučce pozorujeme skrčeni za kamennou zídkou pobíhající stádečko divočáků. Asi největším zážitkem byl kousek od nás pádící obrovský kanec kolem jezírka. Na závěr se ještě objevili daňci.
+
+![](_DSC1049.jpg)
+
+![](IMG_20180819_151049.jpg)
+
+V rezervaci jsou ale ještě další zajímavosti. Třeba obrovské bunkry z druhé světové války se střílnami pro kanony s orientací na moře. Také prý ale nebyly nikdy použity.
+
+Skalní útesy jsou porostlé vřesem a zakrslými duby a je z nich úžasný výhled na mořské zálivy s řadou ostrůvků.  Za pět hodin toulek přírodní rezervací jsme potkali jen šest lidí.
+
+Na parkovišti u auta svačíme a odpočíváme. Mezitím sem dorazila postarší paní na podvečerní procházce. Dříve než se otočila ke zpáteční cestě, přišla se zblízka podívat na naše auto a – zaradovala se. Krásně bylo vidět, jak se jí rozzářily oči. Hned se s námi dala do řeči. Jestli prý jsme z Čech. Když jsme potvrdili, že ano, rozpovídala se o svých devíti cestách do naší vlasti, o přátelích, které zde má a jak k nim přišla. Trochu mi to připomnělo vzniklé přátelství mezi mojím taťkou a jeho švédskými přáteli Ivarem a  Märtou a jejich dětmi. Vyprávěla jsem tedy pak zase já o svém dědečkovi, který měl také dobré přátele ve Švédsku, jak si s nimi esperantsky dopisoval, jak pak válka přátelství přerušila a smrt dědečka v koncentračním táboře Mauthausen přátelství ukončila. Jak pak jeho syn – můj taťka - po válce na přátelství navázal a v esperantském dopisování pokračoval. Po smrti Ivara a Märty si dopisuje s jejich syny Arnem, Hansem a jejich dcerou Anna – Stynou.
+
+Hezky jsme si s úplně cizí a neznámou paní popovídali. Paní nás pak pozvala na návštěvu podívat se, jaké zvláštní obrazy vyrábí. Z vyčesávané ovčí vlny. Velice zajímavá technika.
+
+Dnešní noc nestrávíme v autě, ale u couchsurferky v malé vesničce Bräkne-Hoby.
+
+![](IMG_20180820_100313.jpg)
+
+Monica Axelsson bydlí v typickém dřevěném hnědočerveném domku se zahradou. K domku patří velká prosklená zimní zahrada s posezením pro chladnější dny, která pokračuje venkovní terasou s dalším posezením pro teplé letní dny. Domeček zvenčí vypadá celkem malý, ale ve skutečnosti je dost prostorný. V přízemí je kuchyň s jídelním koutem otevřeným do patra, kde jsou dvě ložnice. Vedle kuchyně je koupelna a WC, za kuchyní je menší obývací pokoj a Moničina ložnice s postelí s moskytiérou proti mouchám. Z kuchyně se vchází na ze všech stran prosklenou verandu.
+
+![IMG_20180820_100545.jpg](IMG_20180820_100545.jpg)
+
+My s Vladem jsme obdrželi úplně soukromý zahradní domeček se skandinávskou palandou a suché WC hned vedle. Všechny stavby jsou červenohnědé s bílými dveřmi, okénky, okapy a hranami střech.
+
+Monice je 53 let, vystudovala architekturu a věnovala se jako projektantka krajinotvorbě. Tuto činnost však už před mnoha lety opustila díky děsné švédské byrokracii a začala hodně cestovat. Na cesty si přivydělává díky Work and Travel. V lednu odlétá za teplem na Kubu a pak na několik měsíců pracovat do Portorika. Monica je hned od prvního pohledu přátelská a veselá osoba.
+
+# 5. Bräkne-Hoby
+
+20. srpna, pondělí
+
+Nezvykle poklidné ráno. Tempo určuje Monica, která dnes jede s námi a připravila dnešní program. U snídaně řádně procvičujeme všichni angličtinu a dobře si rozumíme. Po 10:00 odjíždíme všichni naším autem do oblasti Järnavick. Monika nám chce ukázat skryté místo v lesích s tábořištěm na břehu mořského zálivu – Blekinge, kde měla svatbu.
+
+![](IMG_20180819_194446.jpg)
+
+Děláme okruh kolem malého poloostrova lesem mezi skalami Micklas fähus. Monica nás pak ještě vede do malého přístavu Järnavick, který v 17. století býval hlavním přístavem v Blekinge. Dnes v něm kotví jen několik rybářských bárek a loďka vozící turisty do restaurace na nedaleký, prý zajímavý ostrov.
+
+![](_DSC1066.jpg)
+
+Procházíme přístavem a pak pokračujeme do zálivu Bastuviken. Je zde krásný přístup do vody, ale zrovna, když se Vlado rozhodl vstoupit do vody, začala se od moře velmi rychle blížit silnější přeprška a černá mračna. Moře zešedlo a my pádíme k autu. Nemáme pláštěnky a tohle vypadá na průtrž mračen. Kupodivu pršet přestalo velmi rychle, ještě jsme nebyli ani u auta.
+
+Ve 14:30 zbyl konečně čas na vegetariánský oběd (Monica je vegetariánka), těstoviny plus zelný salát plus rajčata plus kukuřice a houby. Už v 15:20 odjíždíme s Monicou k jejímu oblíbenému nezarostlému jezeru Trehörnan. Prý tam bývají nádherné západy slunce. Chceme tam také vyzkoušet naši novou kánoi. 
+
+Chvíli sedíme nerozhodně na břehu, silně fouká a na jezeře se tvoří vlny. I na koupání je nám zima. Dorazili dva Švédi a skupinka čtyř Němců. Někteří dokonce vlezli do vody. Monika se uvelebila na břehu a čte si. Nechává to na nás, co podnikneme.
+
+![](WhatsApp_Image_2018-08-22_at_09.05.28.jpg)
+
+![WhatsApp Image 2018-08-22 at 09.05.01.jpg](WhatsApp_Image_2018-08-22_at_09.05.01.jpg)
+
+Nakonec se odhodláváme a jdeme nafouknout naši loď. Obeplouváme tiché jezero, pouze šplouchání vln ruší podvečerní klid. Jezero opravdu nezarůstá rákosím, jen tu a tam u břehu kvetou bílé a žluté lekníny. Když jsme připluli do našeho “přístavu" u mola, Monica spala na skále nad jezerem.
+
+Čekáme společně na západ slunce, ale protože je sluníčko ještě vysoko nad horizontem navrhuji, že abychom nezmrzli, mohli bychom jezero obejít. Nikdo neprotestuje. Jezero si tak můžeme prohlédnout z různých stran z několika skalních vyhlídek.
+
+![WhatsApp Image 2018-08-22 at 09.05.04 (1).jpg](WhatsApp_Image_2018-08-22_at_09.05.04_(1).jpg)
+
+![](IMG_20180820_181243.jpg)
+
+Po návratu k autu ještě zbývá chvíle, než se sluníčko dotkne vrcholků borovic a tak došlo i na "naked" koupání, což potěšilo hlavně Vladka. Mě přesvědčila Monica:-). Vítr se už zklidnil, i hladina jezera je klidná a temně černá. Pak už jen na skále nad jezerem čekáme na západ slunce.
+
+![_DSC1081.jpg](_DSC1081.jpg)
+
+# 6. Jezero Orlunden a Pehr
+
+21. srpna, úterý
+
+Noci jsou už chladnější, ale v našem srubu nám bylo bezva. Po velice relaxačním ránu a velké části dopoledne vyrážíme za dalším dobrodružstvím, tentokrát bez Moniky. Má doma nějakou práci, ale doporučila nám, kam se vydat. K jezeru Orlunden. Jsou tam vysoké skalní útesy s nádherným výhledem na jezero, odkud dle legendy shazovali příslušníci dávných kmenů své staré a nemocné členy do jezera, aby už zemřeli. Brrr. Místo se jmenuje Valhall. Z vysokých útesů se k vodě jinak než pádem nebo skokem z tohoto místa dostat nedá a tak raději popojíždíme na protější břeh. Už zase svítí sluníčko, takže bychom asi měli vytáhnout náš člun.
+
+![](_DSC1088.jpg)
+
+Nedaleko městečka Olofström, na druhé straně jezera Orlunden, je velice pěkné místo se vstupem do vody, molem, lavicemi a stoly na piknik, WC a parkovištěm. Zatravněné břehy s posekanou trávou přechází zvolna přes písčitou plážičku do vody. Dalo by se tu i krásně přenocovat. Jeden "obytný " Transportér bílé barvy tu už parkuje. Dáváme se do řeči s jeho německými majiteli, postarším manželským párem. Líčí nám, kde všude už s ním byli a ukazují nám jeho interiér.
+
+Je tu tak krásně a téměř žádní lidé, že neváháme a během chvíle už nafukujeme náš Explorer. Plujeme po tichém jezeře s minimem rákosí. Jezero Orlunden je velice členité a tak se snažíme z našeho "menšího" jezera probojovat na hlavní vodní plochu. Bohužel se nám to nepodařilo. Mezi oběma částmi jezera je taková mělčina, že i náš malý člun dře o dno. Obeplouváme tedy alespoň tu část jezera, kde jsme "uvězněni" a přitom se pokoušíme z kánoe filmovat, díky GoPro od kluků, naše okolí.
+
+![](_DSC1091.jpg)
+
+Oběd vaříme na stole na skále nad jezerem s překrásným výhledem na vodní hladinu. Došlo i na Vladovo koupání. Vítr se utišil a sluníčko pěkně hřeje. Ale mě do vody, bohužel, stejně nedostalo.
+
+S lodí na střeše auta odjíždíme k dalšímu jezeru, které nám doporučila Monica. Mělo by být opět minimálně zarostlé rákosním. Tím jezerem je jezero Halen a vstup pro vodáky je u obrovské půjčovny kánoí a kajaků Kanotcentral. Auto parkujeme asi tak jeden metr od vodní hladiny. Žádné rákosní, žádné lekníny ani žabinec, jen temně modrá čistá voda. Úplně ideální přístup ale... Zatáhlo se – a fouká. Stojíme na břehu a nervózně přešlapujeme na místě. Tedy alespoň já. Mezitím vedle nás zastavilo auto s anglickou značkou a vystoupili dva černoši s malinkým černouškem. Asi budeme muset rychle odplout než dorazí další diváci.
+
+![_DSC1094.jpg](_DSC1094.jpg)
+
+![](_DSC1096.jpg)
+
+Plavíme se po různých ramenech velmi členitého jezera. Na mnoha místech z vody trčí balvany, některé jsou těsně pod hladinou. Hladina jezera je po letních vedrech o dost níže a tak tu a tam míjíme malé ostrůvky. Skoro začínám mít obavy jestli najdeme cestu zpět k autu. Těsně před otočkou zpátky na chvíli vysedáme na mini zalesněném ostrůvku. Je tu pár borovic a uprostřed skalisko. Chvíli se protahujeme a přitom pozorujeme, jak kolem nás tiše klouže stará indiánská kánoe.  Za celé dvě a půl hodiny plavby jsme potkali jen tři kánoe .
+
+![](IMG_20180821_162932.jpg)
+
+Cestou se zastavujeme ve zdejším Lidlu a ICA potravinách, abychom si zakoupili speciální švédské sýry, které jsme včera měli možnost u Moniky ochutnat a které Vlada nadchly.
+
+Ihned po návratu k Monice nás naše nová kamarádka zve na večerní návštěvu s hotovou večeří k jejímu známému Pehrovi, který bydlí na pobřeží v malém srubu asi 20 minut jízdy od jejího domku. Dlouho se nerozhodujeme a souhlasíme, i když se Vlado už těšil na maďarský guláš z konzervy s rýží, který právě nesu z auta.
+
+Pehr žije v malém srubu ve skalách v lese téměř na mořském břehu. Asi 20 metrů od vody a asi 2,5m nad ní. Právě ve chvíli, kdy přicházíme na jeho "mýtinku", zapadá sluníčko nad jeho zátokou. Úžasné. Před domkem na nás už čeká velmi přátelsky vypadající vysoký štíhlý sympaťák s vlajícími našedlými vlasy - Pehr. Za jeho zády se na nás dobývá zpoza zábrany jeho čtyřnohý kamarád, velmi přátelský pes Mira, fenka křížence malého vlčáka.
+
+Pehr pro nás připravil vynikající vegetariánskou (díky Monice) večeři. Rýži s omáčkou a la Chilli con carne, na másle grilované speciení švédské sýry a zeleninový salát s olivami.
+
+Uvnitř malého příbytku si povídáme téměř až do půlnoci. Pehr (1964) je učitelem fyziky a chemie na základní škole nedaleko odtud. Nyní ale pro zdravotní potíže (revma), zhoršené stresem ve škole, svůj pracovní poměr po dlouhém rozvažování skončil. Od konce školního roku je na neschopence a užívá chemoterapeutika.
+
+Rodiče jednoho žáka ho osočili, že nařkl jejich syna, že podvádí při testech, když opravdu podváděl a vůbec se neučil a ještě rušil celou třídu. Pehr přitom dával velký pozor, aby slovo "podvádět" synovi při předávání testu s nulovým počtem bodů neřekl. Ředitel ani kolegové ho nepodrželi, nikdo se ho nezastal. Pehr se sesypal a nemoc držená léky pod kontrolou se prudce zhoršila.
+
+Školství je Vladovo oblíbené téma a tak bylo hned o čem hovořit. Jen mě překvapilo, že skandinávské školství má stejné potíže jako to české. Podle Ondry to totiž vypadá, že všude je to lepší než u nás. Hlavně ve Skandinávii. Kolem půlnoci jsme končili diskuzí o migrantech ve Švédsku. Mira nám po celou dobu ležel u nohou. Pehr nás pozval všechny tři s Monicou na další den na výlet na kánoích kolem mořského pobřeží.
+
+# 7. Plavba po moři v kánoi a další úraz
+
+22. srpna, středa
+
+Ráno jsem trochu nervózní. Jaké to asi bude plout s tou naší malou kocábkou po moři? Co když budou vlny? (Žraloci, pokud vím, ve studených mořích nežijí!) Po desáté hodině odjíždíme k Pehrovi na pobřeží Baltského moře k vesničce Bökevik (naproti v zálivu - Vieryd). Pehr i Mira jsou už připraveni a chystají dole v zátoce jejich laminátovou kánoi. Chvíli na nás musí čekat než nafoukneme tu naši. Pak ještě Pehr chvíli dává Vladovi poslední instrukce ohledně držení padla a – můžeme vyrazit.
+
+![](_DSC1103.jpg)
+
+V první kánoi od břehu odrážíme my s Vladem, hned za námi Pehr, Mira a Monika. V lodním vaku od Dominika si vezu boty na přezutí (jedu v žabkách) a bundu pro případ větru. V druhém, menším, též nepromokavém vaku vezeme foťák, mobily a – jen Vlado - doklady.
+
+ 
+
+![](_DSC1109.jpg)
+
+![_DSC1115.jpg](_DSC1115.jpg)
+
+![_DSC1113.jpg](_DSC1113.jpg)
+
+Vydáváme se na společný celodenní výlet podél pobřeží a mezi přilehlé ostrovy a ostrůvky na dvou kánoích. Některé ostrůvky jsou jen skalnaté a bez vegetace, jiné porostlé jen trávou a ty další hustě zalesněné. Občas plujeme mezi hustými mořskými chaluhami. Naší první zastávkou je poslední, pouze skalnatý ostrůvek před otevřeným mořem. Pak už je jen 450 km moře a potom Polsko. Tam rozhodně nepoplujeme.
+
+Mezi kvantem chaluh se prodíráme k ostrůvku. Mira se chystá už už vyskočit z lodě. Pehr ji musí držet, aby je nepřevrátila výskokem z kánoe. Pokud plujeme v pobřežních vodách pod ochranou ostrůvků, je moře klidné. Na otevřeném moři jsou vlny, které s naší kánoí značně pohazují.
+
+Už se nemohu dočkat, až někde zakotvíme. Po celou dobu plavby mi totiž stéká studená mořská voda po pádle na ruce a nohy, takže si z toho potřebuji nutně odskočit. Pehr to tuší, protože stejnou potřebu má jistě i on a proto nás informuje, že je zakázáno močit do moře. ( Na ostrůvku je totiž jediná větší skála, za kterou se dá schovat a ta je těsně na břehu moře.) Na můj překvapený pohled vysvětluje: i nepatrné množství moče, třeba jen pár molekul, prý dovede velice podpořit růst chaluh kolem pobřeží, což není žádoucí. Doufám, že se nepočůrám, než všichni odejdou na opačný konec ostrůvku, abych nemusela za tu jedinou skálu a nezpůsobila tak chaluhovou katastrofu v celém Baltském moři, protože těch nebezpečných molekul mám teď v sobě kvanta.
+
+![_DSC1119.jpg](_DSC1119.jpg)
+
+Po návštěvě malého kamenitého ostrůvku nás Pehr neohroženě vede k dalšímu, většímu a zalesněném ostrovu. Asi se tu hodně čůrá do vody, protože moře kolem ostrova je dost zarostlé trávou a chaluhami. Jsem moc ráda, že se mi podařilo dostat se z kánoe na břeh bez brodění se mezi vodní vegetací - to nesnáším.
+
+![_DSC1128.jpg](_DSC1128.jpg)
+
+Obouvám si turistické boty z lodního vaku, bereme foťáky a mobily a vyrážíme na průzkum ostrova, zatímco lodě, pádla, vesty, žabky,... zanecháváme opuštěné na liduprázdném břehu. Mé obavy, co když nám lodě někdo sebere a jak se pak dostaneme na pevninu, rozhání Pehr. Proč by se mělo něco ztratit? Nic se neztratí! Teď už jsem tedy naprosto klidná a mohu vyrazit na obhlídku ostrova. Jen musíme počkat než si Pehr zakouří svoji dýmku.
+
+![](_DSC1132.jpg)
+
+Ostrov se zdá být neobydlený. Tedy alespoň ta část, kde jsme se toulali. Přesto je tu řada známek lidského osídlení. Možná v minulosti či příležitostně i dnes. Jsou tu kamenné zídky, starodávné ohrady a spousta nepříliš starých kravinců.  Zřejmě se sem na léto přiváží z pevniny dobytek na spásání trávy a houští.
+
+![_DSC1133.jpg](_DSC1133.jpg)
+
+Bloudíme cestou necestou (spíše tou necestou) vnitrozemím ostrova, až nás Pehr zavedl na skalnaté útesy na druhé straně ostrova s výhledem na širé moře. Než jsme se dostali na hlavní vyhlídkové skalní útesy, došlo k několika nepříliš hezkým pádům na suchých, ale velmi kluzkých lišejnících porůstajících skaliska. Nejprve upadla Monica, která přeskakovala skály a ve stejnou chvíli se jí pod nohy připletla Mira. Mira ještě stihla odskočit, ale Monica už ne. (Monica přitom měla loni v říjnu velice ošklivý úraz na motorce na Sicílii a její noha ještě stále není ok.)
+
+Pak jsem uklouzla já. Rukou jsem se snažila chránit před nárazem o skálu foťák a tak jsem se nestihla zachytit a sesunem po kameni jsem si pěkně servala kůži na holeni. Chvíli jsem zůstala ležet v šoku. Noha děsně bolela a jeden loket také. Hlavou mi bleskově prolétlo, jak se z ostrova dostanu na pevninu, pokud se vůbec dopravím k našim kánoím. Jak se nasoukám do lodě, kde musím mít pokrčené nohy a jak se přes mořské vlny dostanu do Pehrova přístavu... Začala jsem se pomalu rovnat a kontrolovat svoje kosti. Vypadá to naštěstí dobře. Asi není nic zlomeného, jen sedřené koleno a lýtko do živého masa. Abych se trochu vzpamatovala sedíme asi půl hodiny nad mořským příbojem a posloucháme šumění moře.
+
+![_DSC1136.jpg](_DSC1136.jpg)
+
+![WhatsApp Image 2018-11-12 at 00.47.13.jpg](WhatsApp_Image_2018-11-12_at_00.47.13.jpg)
+
+Na zpáteční cestě ostrovem jsme se trochu ztratili. Z našeho směru ke kánoím nás vychýlily bažinky. Pehr ale nakonec ke kotvícím lodím trefil. Čekaly přesně tam, kde jsme je před časem zanechali. Čeká nás ale ještě cesta ve vlnách mezi ostrůvky zpět do “přístavu”. Na krvácející koleno a holeň si uvazuji šusťákovou bundu, aby mě nepálila slaná voda, která mi na nohu při pádlování občas stéká. I tak se voda do otevřené rány dostala a pálí jako čert. Teď nic jiného nemám, natož obinadlo a sterilní polštářky. Kolem čtvrté hodiny jsme po 5ti hodinovém výletě už bez kolize zakotvili pod Pehrovým srubem.
+
+![_DSC1142.jpg](_DSC1142.jpg)
+
+![_DSC1143.jpg](_DSC1143.jpg)
+
+U pozdního oběda, který opět obstaral Pehr, povídáme o cestování a školství až do půl šesté. Pak se loučíme. Musíme odvést Monicu domů a vyrazit na další cestu. Monica je fajn a tak je loučení o to těžší.
+
+Naší další zastávkou bude Växjö (Vacho) a couchsurfer Pieter. Asi po hodině jízdy na chvíli zastavujeme na lesním parkovišti, abych si ještě odskočila těsně před tím, než dorazíme do města. Bůh ví, jak dlouho budeme Pietra ve Växjö hledat.
+
+Jen tak zběžně jsem mrkla na svou zakrvácenou nohu a ejhle. Kousek od rány se zakouslo klíště. Potvora. Ještě než jsem začala hledat mýdlo, vodu a toaleťák, sjela jsem pohledem níže. Další klíště. Na druhé noze byly tři. Svlékám si kraťasy. Další dvě klíšťata. Rozhlížím se po parkovišti. Nikde nikdo a tak za autem pokračuji ve svlékání. Další klíště. Asi budu muset pokračovat ve svlékání i s tričkem. Další dvě klíšťata. Jsou tak mrňavá, že si musel Vlado nasadit brýle a prohlíží mě velmi pozorně. No, jestli teď někdo zastaví a zajede k nám na parkoviště tak bude v šoku, co tam ta nahá ženská dělá. Odstranili jsme ze mě asi 12 až 14 mikro klíšťat a pak se hned vrhli na Vlada.  Asi po hodině intenzivní práce, při které jsem už dost promrzla, jsme odstranili asi 25 klíšťat z nás obou. Přinesli jsme si je z toho ostrova, jak jsme seděli půl hodiny na útesech. Klíšťata tam nemají žádnou obživu (lidé tam nežijí a dobytek jen příležitostně) a tak číhají na první příležitost. A to jsme byli my. Ostrov jsme překřtili na Ostrov krvežíznivých klíšťat. K Pietrovi jsme tak dorazili dost pozdě, ale bez klíšťat.
+
+# 8. Växjö, dobití hradu z kánoe
+
+23. srpna, čtvrtek
+
+Växjö je jihošvédské městečko v provincii Småland, ležící ve vnitrozemí mezi lesy a spoustou jezer. Je to univerzitní městečko s více jak 60 tisíci obyvateli. Náš couchsurfer na zdejší Linneuniversitete učí především fyziku a trochu i chemii. Bydlí v obytné čtvrti se spoustou řadových dvoupatrových domků obklopených parkovou úpravou. Vedle toho tu jsou společné prádelny, veřejné místo s vodou pro mytí aut, parkovací dvůr s garážemi, sběrný dvůr na třídění odpadu, odstavná parkoviště, přístřešky pro kola, společné sauny či sušárny vybavené sušičkami... Nebylo lehké Pietrův byt najít. V okolí se staví další a další nové domky. Växjö zažívá mohutný rozvoj.
+
+![](_DSC1145.jpg)
+
+![_DSC1148.jpg](_DSC1148.jpg)
+
+![_DSC1147.jpg](_DSC1147.jpg)
+
+Již v 9:00 sedíme v autě. Je krásné slunečné ráno a překvapivých 27 stupňů Celsia. Míříme k přírodní rezervaci Jägaregap Domänreservat, abychom si udělali pěší výlet kolem velice členitého jezera Helgasjön nebo spíše kolem jednoho jeho poloostrova. Auto zanecháváme na prázdném parkovišti těsně vedle vody a nedaleko grilovacího posezení, kde chci po návratu uvařit oběd. Nikde nikdo. Stejně tak prázdná a bez lidí je i stezka kolem jezera s nesčetnými výhledy na hladinu a řádku ostrůvků. Část cesty vede po povalových dřevěných chodníčcích, aby se lidé neutápěli v mokřinách. Teď po horkém létě je ale všude sucho.
+
+![](_DSC1152.jpg)
+
+Míjíme řadu pěkných míst ke grilování a k odpočinku. Obklopuje nás smíšený borovobukový les s břízami a jeřáby. Voda je čistá a téměř skoro všude nezarostlá rákosím. Za celé tři hodiny výletu po uzoulinké stezičce kolem pobřeží jsme potkali jednoho cyklistu (?), paní se psem a jednoho rybáře na vodě. Proto jsem se odvážila k naked koupání. Po zdlouhavém osmělování byla voda nakonec docela teplá. Helgasjön je jedno velké jezerní bludiště se spoustou ostrůvků a zátočin a s lesem rostoucím až téměř k vodě.
+
+![](_DSC1167.jpg)
+
+![_DSC1180.jpg](_DSC1180.jpg)
+
+Po návratu k autu vaříme oběd na jednom grilovacím stanovišti a pak asi hodinu pospáváme v autě a čekáme až vyjde sluníčko. Je totiž zataženo a mraky vždy tam, kde je slunce.
+
+![](_DSC1185.jpg)
+
+Před šestnáctou hodinou se přece jen rozhodujeme nafouknout kánoi a spustit ji na vodu. Fouká docela dost silný vítr, dělají se vlny a tak pádlování proti větru trochu více unavuje, ale nemůže nám to zabránit v doplutí k jakési hradní zřícenině, asi 30 minut plavby od našeho stanoviště na druhém břehu.
+
+![](_DSC1188.jpg)
+
+![_DSC1196.jpg](_DSC1196.jpg)
+
+Kotvíme na břehu pod hradem Kronobergs slottsruin a snažíme se o jeho "dobytí" z vody. Zadním vstupem se dostáváme do hradu a postupně až na hlavní nádvoří, do obytných prostor či přes padací most na dva přístupové můstky. Tady zjišťujeme, že jsme jaksi obepluli pokladnu, kde se kupují lístky na vstup do hradu. My ho fakt “dobyli".
+
+![](_DSC1198.jpg)
+
+Nikdo k nám od pokladny ale pro vstupné neběží a tak se vracíme do hradu a pak zpět k naší lodi. Po celou dobu jsem místo v brnění v plovací záchranné vestě. Je mi v ní tepleji. Na zpáteční cestě se zvedá silnější vítr, který vytváří větší vlny. Trochu nás to znervózňuje.
+
+![](_DSC1200.jpg)
+
+![_DSC1205.jpg](_DSC1205.jpg)
+
+![](_DSC1225.jpg)
+
+![IMG_20180823_175733.jpg](IMG_20180823_175733.jpg)
+
+V 18:00 odjíždíme od Helgasjön jezera. Je 24,5 stupně Celsia. Cestou k Pietrovi se krátce zastavujeme ve Växjö, abychom si prohlédli celý univerzitní kampus Linneuniversitete, kde učí Pietr deset hodin týdně, což mu Vlado závidí.
+
+Večer jdeme všichni tři společně na procházku po okolí a k nedalekému jezeru, které se Växjö, jak Pietr říká, bude snažit chemicky čistit, aby nezarůstalo rákosím a lidé z města se v něm mohli koupat. Teď je na koupání obyvatelstva absolutně nepoužitelné. Vracíme se zpátky kolem jezdeckého areálu.
+
+# 9. Národní park Åsnens
+
+24. srpna, pátek
+
+Loučíme se s Pietrem. Jde nás ještě vyprovodit a ani si nevšimne, že odchází ve Vladových sandálech. Máme docela štěstí, že ráno neodjel do práce, ale že má dovolenou. Takhle si oba hoši zvládnou boty vyměnit na zápraží a nemusíme Pietra hledat na univerzitě. To by byla docela legrace...
+
+![](IMG_20180824_083547.jpg)
+
+![](_DSC1249.jpg)
+
+Po rozloučení odjíždíme k přírodní rezervaci Naturreservat i Asnen. Chvíli trvá, než najdeme vhodné místo k zaparkování a tak v okamžiku, kdy vyrážíme na průzkum rezervace, začíná pršet. A prší a prší. A prší. Čekáme až přestane a nebo jestli nepůjde kolem los. Nestalo se ani jedno a tak pobízím Vlada, že než si udělám poznámky do deníku, že by mohl zvenčí umýt naše děsně špinavé auto. Že už je za tu dobu deště jistě pěkně odmočené. A tak se Vlado svléká v autě donaha a s košťátkem v ruce odchází do slejváku...
+
+![](IMG_20180824_095622.jpg)
+
+V 10:30 mám doplněné poznámky, auto je umyté, los nedorazil a ještě stále prší. Opouštíme tedy rezervaci a míříme do Národního parku Åsnens. Na rozdíl od předcházejících míst, která jsme navštívili, je tento park vybaven pro větší příliv turistů. Velké parkoviště je vybavené WC a tekoucí vodou, několika grilovacími místy, lavičkami, přístřešky se suchým dřevem a jedním velkým proskleným přístřeškem se stoly k občerstvení pro případ deště. Ale my jsme tu zatím úplně sami.
+
+![](IMG_20180824_112253.jpg)
+
+![](_DSC1268.jpg)
+
+Vydáváme se po turistickém okruhu, který je částečně vhodný i pro vozíčkáře, po břehu poloostrova Hösson s řadou naučných panelů. Les je převážně smíšený s velkým zastoupením buků, osik, bříz a dubů. Na konci našeho okruhu začíná opět pršet a tak se těšíme, jak si pod přístřeškem uvaříme něco teplého k pozdnímu obědu. Společnost nám dělá jen dvojice mladých Němců, kteří ale na rozdíl od nás mají auto ještě daleko.
+
+![](_DSC1276.jpg)
+
+![_DSC1277.jpg](_DSC1277.jpg)
+
+Děláme ještě několik dalších zastávek po tomto pěkném národním parku, například u dvojitého mostu. Jeden je starý kamenný klenutý a hned vedle něj dvakrát tak široký nový asfaltový. Na řadě míst je krásný výhled na velmi členité jezero a přilehlé ostrovy a ostrůvky a tak podnikáme několik kratších procházek kolem jezera.
+
+![](_DSC1280.jpg)
+
+![](IMG_20180824_143033.jpg)
+
+![_DSC1281.jpg](_DSC1281.jpg)
+
+Docela nám přišlo vhod, že severskou divočinu vystřídala civilizace. Ne že bychom narazili na nějaké městečko, ale kolem naší polní silničky se objevily rozlehlé sady. Sady s jabloněmi, hrušněmi a švestkami. A spousta ovoce se válí na zemi. Snad nám nikdo nevynadá, když si něco posbíráme. Kousek za posledními jabloněmi jsme na místě zvaném Hvaems Odekyrkogärd narazili na zajímavý kříž.
+
+![_DSC1284.jpg](_DSC1284.jpg)
+
+O chvíli později jsme objevili další velmi zajímavé místo – muzeum pod otevřeným nebem – skanzen Lunnabacken. Na návrší nad jezerem Åsnen s dalekým výhledem na vodu a hluboké lesy, stojí historické domečky švédských farmářů z 16. a 17. století. Dorazili jsme pozdě. Buď je moc hodin nebo je už po sezóně, ale každopádně jsou už všechny červenohnědé, hezky udržované domečky se zatravněnými střechami zavřené. Nahlížíme tedy alespoň přes okna do obytných světniček a tkalcovny, prohlížíme si poháněcí zařízení pro zvířata, které otáčelo dalším mechanismem uvnitř ve stodole přes tyč vedoucí skrze zeď. I tady je téměř liduprázdno.
+
+![](_DSC1290.jpg)
+
+![](_DSC1292.jpg)
+
+![](_DSC1301.jpg)
+
+Teď navečer se počasí vylepšilo. Po dešti ani památky a slunce krásně hřeje. Ještě se nám nechce do auta spát a tak se vydáváme dolů k jezeru Åsnen. Překvapuje nás varovná cedulka na první louce, kterou musíme přejít. Předpokládáme, že tam bude napsáno, že louka je soukromá a vstup na ní zakázán. Ale není. Nikdo by jste neuhodl, co tam bylo napsané. "Dávejte pozor při přechodu přes louku. Často tu ryjí divoká prasata a terén je nerovný!" Nečekaná starostlivost o bezpečnost procházejících. Naše pěšinka přes louku vede kolem drátěného plotu, na kterém právě dozrávají hrozny modrého vína. A je fakt vynikající. Majitel tu žádný není. Víno je polodivoké.
+
+![](_DSC1310.jpg)
+
+![](_DSC1304.jpg)
+
+Na zpáteční cestě k autu na parkovišti pod skanzenem nás chytil parádní slejvák. Náhle se zatáhlo, zmizelo slunce i modré nebe a spustily se provazy vody. K autu jsme nedošli durch mokří jen díky jednomu opuštěnému domku s balkonkem, pod který jsme se schovali. Rozhodujeme se přenocovat na prázdném parkovišti. Je tu WC s tekoucí vodou a informační panely s malým přístřeškem a lavicí pro případ večeře či snídaně v dešti.
+
+![](_DSC1305.jpg)
+
+![](_DSC1306.jpg)
+
+A došlo i na "sprchu". Vlado se koupal v jezeře, ale já se potřebuji umýt. Naštěstí je tu ještě jeden info panel, který se dá využít jako paraván. A parkoviště je zrovna úplně prázdné...
+
+Když už ležíme v autě a já si čtu, nastává na parkovišti nečekaný pohyb sem a tam tří aut, což mě znervózňuje. Noc je ale klidná. Bez deště i padajících jablek na střechu auta.
+
+# 10. Setkání s pirátem a hřbitov aut
+
+25. srpna, sobota
+
+Budí nás sluníčko, ale z peřin se nám moc nechce. Při pohledu na teploměr je jen 9°C, ale v noci nám bylo teplo a stačily nám jen slabé deky. Sbíráme si na cestu nějaké ovoce (pouze padaná jablka) z okolních stromů. Kolem je jen prázdné parkoviště. Hodláme odjet, ale..... auto nestartuje. Vlado kouká pod kapotu a jde hledat naše startovací kabely a nabíječku. Ve stejné minutě přijíždí švédské auto, ze kterého vyskakuje mladý Švéd a ihned nám spěchá na pomoc. Máme štěstí, že takhle brzo ráno se tu někdo objevil. Nakonec ale stačila Vladova nabíječka. Ale stejně "díky" za bleskovou ochotu nám pomoci!
+
+Vlado by nebyl ve své kůži, kdyby se po ránu hned někde nevykoupal a tak hledáme příhodné místo. Nejblíže je stále Åsnen lake. Sice k němu vede private road, ale je tu liduprázdno... Jsou tu jen tři opuštěné lodičky a molo, které si o vodě z jezera nechává už jenom zdát. Hladina je skoro o metr níž než by měla být. S tak teplými léty budou muset Švédi mola prodlužovat. Je 14°C.
+
+![](IMG_20180825_090902.jpg)
+
+Ve městečku Tingsryd nakupujeme 4 švédské čokolády na cestu domů. Sháněli jsme Ondrovi jeho oblíbené borůvkové, ale ani jedna. Tak alespoň oříškové.
+
+Před obchodem sedí bulharský žebrák. O nich nám už ve Växjö vyprávěl Pietr. Vozí je jsem prý bulharská mafie, která pak zabavuje část jejich vybraných peněz. A když žebráci peníze nemají, nebo je nechtějí dát, mohou dopadnout špatně. Pietr nám vyprávěl, jak loni v zimě v třeskutém mrazu jela jeho sousedka odkudsi domů se svým synkem autem a kluk si čehosi všiml v závěji. Otočili auto a vrátili se. Bez jejich pomoci by dotyčný, k smrti potlučený Bulhar do rána umrznul.
+
+![](_DSC1321.jpg)
+
+![](_DSC1322.jpg)
+
+Dnes nás ještě čeká Naturreservat Stenfors brook. Okolí potoka s pozůstatky osídlení několika kovářů. Stávaly tu malé obytné domky, chlévy, dílny, zdrže na potoce, náhon, můstek, ohrady pro domácí zvířata,… Teď je tu tajemné leknínové jezírko, zbytky náhonu a zdrž vody. Jdeme podél náhonu a pak proti proudu říčky Bräkneån k jezeru zásobujícímu bývalou řemeslnickou osadu vodou. Jak jinak, Vlado je už zase ve vodě.
+
+![](_DSC1317.jpg)
+
+![](_DSC1376.jpg)
+
+Celý týden vyhlížím nějakého losa, ale marně. Až teď! Je sice pouze na dopravní značce, ale možná, když se vydáme příslušným směrem, nějakého potkáme. Nutím Vlada, aby otočil auto a vrátil se. A opravdu, kousek od hlavní silnice je něco jako obora s několika ohradami, v nichž prý určitě po zaplacení 2x 10 EUR uvidíme několik losů. Tak jo, jdeme. Pan správce či majitel nás ještě seriózně varuje, abychom nefotili v blízkosti ohrady a losů, že vůdčí samec je na foťáky už alergický. Zapamatoval si je jako zdroj blesků a může na ně zaútočit.
+
+![](_DSC1356.jpg)
+
+Čtyři losy jsme opravdu potkali a opatrně i vyfotili, nakrmili jablky a pak se s losy v patách vydali podél ohrad dál až k jezeru Miensjön. Cestou na mě při krmení v další ohradě plivla lama a po  Vladovi vykopl (naštěstí přes plot) jeden mladý los, že mu Vlado nechtěl dát žádnou mlsotu. Všechny už totiž došly, losi je sežrali.
+
+![](_DSC1364.jpg)
+
+Než jsme došli k jezeru, začalo pršet. Protože nám majitel parku sdělil, že u jezera je přístřešek, zrychlili jsme, abychom se v něm skryli. K našemu velkému překvapení byl už altánek obsazen. Docela jsem se lekla. V altánku seděl zarostlý chlap a na grilu si přihříval jídlo. Došli jsme blíže. Z chlapa se vyklubal jednonohý pirát s hákem místo jedné ruky. 
+
+![](_DSC1369.jpg)
+
+Začalo foukat a být zima. Altánek se nezdál být moc příjemným útočištěm. Naštěstí vedle něho stál ještě malý prosklený domeček, do kterého jsme se uchýlili. Jezero bylo od našeho útočiště sotva dvacet metrů, tak než jsem připravila oběd, vyrazil Vlado v dešti se do jezera vykoupat. Aby se pak zahřál pobíhal kolem zátoky a mezi domečky. Naštěstí nikde nikdo. Jediná skupinka čtyř lidí, kterou jsme za celou dobu potkali, dorazila právě ve chvíli, když se už Vlado začal oblékat. 
+
+V pirátské zátoce jsme pak ještě objevili vedle pirátského domku s loďkou na břehu jezera, altánu a "skleníku", kde jsme byli schovaní před deštěm, i maják s molem.
+
+![](_DSC1373.jpg)
+
+V 16:00 Vlado vymyslel další zajímavou zastávku. Graveyard Kyrkö mosse nedaleko městečka Ryd. Jedná se o pohřebiště z dnešního pohledu veteránů aut. V lese je zde roztroušeno na 150 vraků aut nejrůznějších značek z poloviny 20. století. Trosky aut postupně mizí pod nánosy jehličí a humusu. Pozemek vlastnil nějaký pan Åke, který zde těšil rašelinu a prodával části motorů aut na náhradní díly. Po jeho smrti se uvažovalo o vyčištění lesa, ale nakonec místní zastupitelstvo rozhodlo, že nechají přírodu, aby si poradila sama. Bude to pokus... A zatím je to atrakce pro turisty.
+
+![](_DSC1396.jpg)
+
+![_DSC1394.jpg](_DSC1394.jpg)
+
+![](_DSC1386.jpg)
+
+![](_DSC1400.jpg)
+
+Jedeme dál a začínáme se stáčet k Trelleborgu. Zítra ráno nám jede domů trajekt. Kolem jezera Levrasjön nacházíme "pro někdy příště" docela pěkná místa na divoké přenocování. Všude kolem míjíme dopravní značky "pozor losi", ale nikde ani kopýtko.
+
+16:30 prší. Tradičně. Pokaždé, když opouštíme Skandinávii prší nebo leje. Míříme k pobřeží, kde někde přenocujeme. Pokud možno co nejblíže k Trelleborgu. V přístavu máme být před 6:30. 
+
+Stále prší, ale na chvíli se přeci jen rozjasnilo a tak vaříme rychle na mořských dunách večeři. Přesně tam, kde jsme před týdnem začínali. A pak zase prší...
+
+![](_DSC1410.jpg)
+
+# 11. Autostop na lodi
+
+26. srpna, neděle
+
+5:50 budíček, 6:40 přístav Trelleborg, 7:40 odplutí, slunečno, vlny.
+
+![_DSC1415.jpg](_DSC1415.jpg)
+
+Po 4 hodinách a 30 minutách a 160 km jsme v Sassnitz. 
+
+Na trajektu se k nám přidala německá studentka s batohem na zádech. 14 dní cestovala jen sama a pěšky po středním Švédsku a teď se vrací domů do Neubrandenburgu. V Berlíně studuje ekologii a geologii. Při vyloďování z trajektu jsme ji vzali do auta a vysadili kousek před Neubrandenburgem na parkovišti, kde ji už čekala maminka s buchtami pro nás.
+
+Nebýt několikahodinového zdržení na dálničních ucpávkách před Berlínem a kličkování po okreskách, byli bychom doma dříve. Ale i tak jsme to stihli v neděli. Přesně ve 20:00 a po 2106 km stojíme před domem. Za celou neděli už nesprchlo.
+
+# 12. Doslov
+
+Jaké to bylo toulat se 4 týdny po francouzských a španělských národních parcích, rezervacích, horských městečkách, v kaňonech kouzelných řek či mezi levandulovými políčky a přitom spát v malém autě nebo u couchsurferů? Možná budete překvapení, ale bylo to naprosto skvělé. Naše Alhambra je super. Byla špinavá, stísněná, co chvíli jsme něco nemohli najít. Ale mohli jsme jet kamkoliv a přespat zrovna tam, kde se nám líbilo. Po letošním zdokonalení jsme ani nutně nemuseli kempovat pouze tam, kde byla voda, ale třeba vysoko v horách. Vezli jsme s sebou dva modré 10l a čtyři bílé 5l kanystry s vodou na vaření a mytí. Díky postřikovači na stromy z Lidlu jsme se bezvadně umyli i jen ve dvou litrech vody. Doma s ní neskutečně plýtváme, i když se snažíme šetřit.
+
+Toaleta neexistuje, v noci i v dešti se musíte odhodlat a vyrazit do neznáma, i když v nejbližším houští můžete narazit na medvěda :-) a na cestu vám svítí třeba jen tisíce hvězd a nebo čelovka. Pokud jste si ji ovšem večer nezapomněli připravit vždy na stejné místo.
+
+Ale i tak to stojí za to. Navštívili jsme spoustu krásných míst, kde díky tomu, že jsme spali poblíž, jsme byli ráno ve výchozím místě úplně sami a bez davů turistů. Pocítili jsme volnost a svobodu a intenzivnější dotek přírody. Spali jsme vysoko v horách, kde našimi sousedy byli pouze orlosupi pyrenejští. Usínali jsme za šumění moře na jihu Švédska nebo vedle zurčícího potůčku ve švédských lesích. Vstávali v horách na rozkvetlých pastvinách nebo čekali na východ slunce nad třítisícovkami. Snídali jsme, obědvali i večeřeli pokaždé s jiným výhledem, na sluncem ozářené hory, kvetoucí louky, pastviny s koníky, tichá jezera, bublající říčky, rozlehlé pláně, dozrávající vinohrady, hluboká údolí, ...
+
+Díky couchsurfingu jsme potkali celou řadu zajímavých místních lidí, které bychom jinak nepotkali. I oni mají zásluhu na tom, že naše cesta byla tak bezvadná. Díky vám všem. Thank you very much.
